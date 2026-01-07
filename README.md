@@ -3,9 +3,9 @@
 ## 👤 Información Personal
 
 - **Nombre:** Fátima Cucart Matoses 
-- **Email:** fatimatoses57@gmail.com 
+- **Email:** fatimatoses@gmail.com 
 - **Teléfono:** +34 657 500 949
-- **Dirección:** Avenida de Cataluña Nº6   
+- **Dirección:** Avenida de Blasco Ibáñez
 - **LinkedIn:** [linkedin.com/in/fatimacucart](www.linkedin.com/in/fátima-cucart-matoses-502429326)   
 
 ---

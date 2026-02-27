@@ -6,7 +6,7 @@
 - **Email:** fatimatoses57@gmail.com 
 - **Teléfono:** 657 500 949
 - **Dirección:** 46021, Valencia
-- **LinkedIn:** fatimacucart   
+- **LinkedIn:** www.linkedin.com/in/fatimacucart  
 
 ---
 
